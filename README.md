@@ -13,15 +13,11 @@
 **Kraken Group === SCAPE THE KRAKEN!**
 
 **Integrantes:**
-* ~~Aldo "Turista" Donisete~~ (*Abandonou o barco no meio do caminho*)
-* Bruno "JapaTarado" Yuske 
-* Julio "Lindão" Cesar 
+* ~~Aldo Donisete~~ (*Abandonou o barco no meio do caminho*)
+* Bruno Yuske 
+* Julio Cesar 
 * Tiago Carapinheiro 
-* Wallace "Wallindo"
-
-*NEVER FORGET THE BLACK HALLS!*
-
-
+* Wallace Lima
 
 ---
 ### Conteúdos externos:
